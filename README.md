@@ -13,4 +13,12 @@ and out side there is a autorun.inf and the batchfile i attached
 
 
 it should look like this when ur done 
-![image](https://github.com/user-attachments/assets/9d69ac39-6004-4dd3-9f66-714685280424)
+![image](https://github.com/user-attachments/assets/2a5b79cd-073c-4f48-ae98-18ffa1d73bfd)
+
+
+
+
+
+then lastly plug it in ur freinds pc/laptop then it shuts down lol
+
+FUNNY
